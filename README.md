@@ -18,5 +18,5 @@ business.
 In summary, CRM solutions are indispensable for small businesses to maximize efficiency and
 fuel growth. By centralizing data, automating tasks, and fostering personalized interactions,
 businesses can deliver exceptional experiences and stay ahead of the competition.
-Contact Tecnolynx Global Pvt Ltd at (800) 476-2318 for a complimentary consultation and take
+Contact <a href="https://www.tecnolynx.com/">Tecnolyx Global Pvt Ltd </a> at (800) 476-2318 for a complimentary consultation and take
 the first step towards transforming your business with advanced CRM technology.
